@@ -1,0 +1,1 @@
+La actividad 4 fueron ejercicios de codigo y preguntas discutidas en el aula de clase
